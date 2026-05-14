@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with dydx trading bot rare Strategy | transaction-batching & auto-compounding, the #1 dydx trading bot. Includes transaction-batching and auto-compounding for
 
 
 
